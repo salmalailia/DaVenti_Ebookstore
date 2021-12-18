@@ -10,4 +10,6 @@ Farah Dhiah Qorirah (05111942000018)
 
 ## OVERVIEW
 
-![image](https://user-images.githubusercontent.com/73702347/146641553-fbf543ff-270e-434e-a9f1-88359d3ab3bd.png)
+![image](https://user-images.githubusercontent.com/73702347/146641650-b3b9f0e0-77e2-416d-9ce3-5b21df6dc6e6.png)
+
+![image](https://user-images.githubusercontent.com/73702347/146641614-d879e182-2364-4085-9def-9fc438d727d8.png)
